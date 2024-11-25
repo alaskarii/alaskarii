@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @alaskarii
+- 👀 I’m interested in nothing
+- 🌱 I’m currently learning everything
+- 📫 How to reach me insta @2pnd2
